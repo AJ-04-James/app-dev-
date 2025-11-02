@@ -21,3 +21,5 @@ A darkly comedic take on horror, blending slasher thrills with campy humor.
 
 ### Plot Summary
 After being resurrected by his ex-girlfriend Tiffany, the notorious killer doll *Chucky* returns, but not without complications. Tiffany ends up trapped in a doll’s body too! Together, the murderous duo embarks on a road trip filled with chaos, carnage, and plenty of dark laughs.
+
+---
